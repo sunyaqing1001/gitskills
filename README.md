@@ -1,3 +1,7 @@
 # gitskills
 
+
 my modify
+
+partener
+
